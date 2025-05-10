@@ -1,1 +1,1 @@
-=>  Pages            :  https://kitenih.github.io/the-wedding-of-mae-zazi/
+=>  Pages            :  https://kitenih.github.io/wedding-mae-zazi/
